@@ -1,4 +1,4 @@
-Discord: <a href="https://discord.gg/x-services">Contact me!</a>
+Discord: <a href="https://discord.gg/4fVyEVUdHN">Join Commiunity!</a>
 
 <b>DUMP FULL RESOURCES (MODELS, LUA SCRIPTS CODE) </br>
 SUPPORT: FIVEM, CUSTOM LAUNCHER </br>
